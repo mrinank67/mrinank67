@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **mrinankrajsingh67@gmail.com**
 
-- 📄 Know about my experiences [https://tinyurl.com/23xxpdpb](https://tinyurl.com/23xxpdpb)
+- 📄 Know about my experiences [Resume](https://docs.google.com/document/d/1bUoZAi_L9oe1Hd5LuH3LAGYH49K9qdEIHNE-fO2hir4/edit?usp=sharing)
 
 - ⚡ Fun fact **It snows metal on Venus.**
 
